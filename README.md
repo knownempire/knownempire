@@ -7,8 +7,6 @@ I am a known from India, I do coding, gaming and studying this is my life for no
 Skills: HTML / CSS / Python
 
 - 🔭 I’m currently working on Improving me :D 
-- 🌱 I’m currently learning Node js 
-- 📫 How to reach me: Discord babe :D :- Call Me Known#7540 
 - ⚡ Fun fact: Ur mom is fat :D 
 
 
